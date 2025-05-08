@@ -41,7 +41,7 @@
 ## 📬 Connect With Me
 
 - 📧 Email: [anishapihu19@gmail.com](mailto:anishapihu19@gmail.com)
-- 🔗 LinkedIn: [Anisha Bhargava](https://www.linkedin.com/in/anisha-bhargava)
+- 🔗 LinkedIn: [Anisha Bhargava](https://www.linkedin.com/in/anisha-bhargava-0224592a9/)
 - 🧑‍💻 GitHub: [Anisha-Bhargava](https://github.com/Anisha-Bhargava)
 
 ---
